@@ -1,6 +1,6 @@
 # RADHIKA BHATI RESUME
 
- 480-249-0807 • radhikabhati413@gmail.com • https://www.linkedin.com/in/radhika-bhati/
+  radhikabhati413@gmail.com • https://www.linkedin.com/in/radhika-bhati/
 
 Arizona State University
 Master’s in Computer Science: 2018 - 2020
